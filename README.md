@@ -1,0 +1,1 @@
+Estou gostando bastante do curso. Ansioso para o aprendizado e pratica com as ferramentas e tecnologias de desenvolvimentos mais atuais. É motivador sentir o entusiasmo e energia de participantes de diferentes realidades.
